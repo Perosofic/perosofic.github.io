@@ -1,1 +1,0 @@
-# perosofic.github.io
